@@ -1,0 +1,1 @@
+# assinardigital.github.io
